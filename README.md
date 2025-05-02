@@ -1,5 +1,3 @@
-# Nolwazi-Radebe
-
 👋 Hi, I’m Nolwazi Radebe but you can call me @CoconutGuluva
 👀 I am a brand strategist, building some of your most loved brands
 🌱 I’m currently honing my data analytic skills 
